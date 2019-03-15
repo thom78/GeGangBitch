@@ -1,2 +1,0 @@
-# GeGangBitch
-Ninja_Paul
